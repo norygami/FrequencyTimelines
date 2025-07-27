@@ -1,0 +1,1 @@
+Querying **corpora timelines** for my friends and colleagues of the DFG-Research project ['Kontroverse Diskurse'](https://www.uni-trier.de/universitaet/fachbereiche-faecher/fachbereich-ii/faecher/germanistik/professurenfachteile/germanistische-linguistik/professoren/prof-dr-martin-wengeler/kontroverse-diskurse).
